@@ -1,1 +1,1 @@
-# My-Favourite-Team-MFT-
+# My-Favourite-Team-MFT
